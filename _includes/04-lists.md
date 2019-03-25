@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. Leslie Cheung
+2. Hins
